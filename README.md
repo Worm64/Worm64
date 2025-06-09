@@ -1,1 +1,1 @@
-![main]([https://tenor.com/view/garten-of-banban-android-android-device-download-garten-of-banban-free-gif-2734460486161569686]
+![oops](https://cdn.discordapp.com/attachments/727717989801263175/1381514817705218149/2.png?ex=6847cb6f&is=684679ef&hm=9b3e2c7d1b0e75259c4da266238e85a5f6aeb13d08095c27fc7a20e65fbec8e5&)
